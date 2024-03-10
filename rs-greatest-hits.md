@@ -18,3 +18,5 @@ IN BOOK:
 ## TODO
 SCRIPT:
 
+... you want to write, paint, make film, dance, or anything creative.
+
