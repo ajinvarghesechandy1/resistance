@@ -18,5 +18,12 @@ IN BOOK:
 ## TODO
 SCRIPT:
 
-... you want to write, paint, make film, dance, or anything creative.
+hello my friends, you want to be an writer/painter/youtuber/film-star. but you are not yet reached there. why?
 
+at the core, you want to make money, anytime sex,thrist to feel the heaven in the earth.
+
+you can imagine all of this but can't get there. why?
+
+you imagine going to the gym, no no no , you imagine having super v cut body. what happen here?
+
+you skip the main part.
